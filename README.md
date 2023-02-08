@@ -9,6 +9,6 @@ I have many new project ideas and will develop them in the soon future (extremel
 
 So...we're in business!
 
-Can't wait to explore new ways and meet amazing peeps along the road!
+Can't wait to explore new ways and meet amazing people along the road!
 
 Bless
