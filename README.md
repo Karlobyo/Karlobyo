@@ -6,6 +6,8 @@ I have been involved in molecular medicine and pharmacology research for many ye
 
 I have many new project ideas and will develop them in the soon future (extremely happy if you'd like to contribute/collaborate!)...stay tuned! 
 
+My portfolio > https://troopl.com/carlobarbini 
+
 So...we're in business!
 
 Can't wait to explore new ways and meet amazing people along the road!
