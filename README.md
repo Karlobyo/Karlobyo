@@ -1,6 +1,6 @@
 ### Hey hey! 👋
 
-I am a Data Scientist originally from Venice (IT), but berliner since 2013.
+I am a Data Scientist and Lecturer originally from Venice (IT), but berliner since 2013.
 
 I have many new project ideas and will be developing them in the near future (very happy if you'd like to contribute/collaborate!)...stay tuned!
 
